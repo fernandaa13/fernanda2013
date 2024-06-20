@@ -6,4 +6,4 @@ to estudando no alura né acontece
 
 beijinhos!!
 
-![](https://tenor.com/pt-PT/view/park-jimin-smile-bts-btsjimin-btsarmy-gif-9883303)
+![](https://pin.it/6feyHvjJq)
